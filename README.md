@@ -1,0 +1,2 @@
+# -Good-Health-Hypnosis
+Good Health Hypnosis provides hypnosis services for a variety of issues, including weight loss, smoking cessation, and stress reduction to name just a few. We provide you with a FREE screening to see if hypnosis is right for you. If we don’t believe hypnosis can help you, we will tell you so. Call today for your FREE screening. It takes 30 to 40 minutes and is fun and informative. All of your questions will be answered at the screening. We provide a written guarantee for our services.
